@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi!!I am Nayanika. I am ambitious and driven. I thrive on challenge and constantly set goals for myself, so I have something to strive towards. I'm not comfortable with settling, and I'm always looking for an opportunity to do better and achieve greatness.
 
 <!--
 **Nay907/Nay907** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
